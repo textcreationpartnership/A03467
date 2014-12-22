@@ -37,7 +37,7 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-THE Historie of Man, sucked from the sappe of the most approued Anathomistes, in this present age, c
+
 1. ¶ TO THE RIGHT WORSHIPfull, Syr Frauncis Willoughby, Knight, Iohn Banister, your most bounden, wisheth the dayly encrease of vertuous knowledge, and happy h•…alth, both here, and euerlastyngly.
 
 1. TO THE WORSHIPFVLL THE Maister, Wardens, Assistantes, and fellowly Fraternitie of Chirurgians in London: and from them to all godly, true and zealous professours of Medicine, throughout this Realme of England, Iohn Banister wisheth the testimonie of a cleare conscience, before the highest Auditor.
